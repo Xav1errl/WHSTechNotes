@@ -1,3 +1,7 @@
+# October 1, 2024
+
+# September 30, 2024
+Internet Out
 # September 17, 2024
 This Is A Free Week
 # September 9, 2024
