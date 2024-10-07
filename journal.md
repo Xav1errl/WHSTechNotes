@@ -1,5 +1,5 @@
-# October 4, 2024
-
+# October 7, 2024
+Title:computer technician Description: Updating Software,TroubleShooting,Providing general support and installing new equipment for the computer Skills Needed: Communication skills, Customer Service, Problem Solving and trouble shooting Education: High school diploma or equivalent Carrer Growth: Management Skills, Problem solving, Cybersecurity and Programming and software development skills.
 # October 3, 2024
 
 # October 2, 2024
