@@ -1,5 +1,11 @@
-# October 1, 2024
+# October 4, 2024
 
+# October 3, 2024
+
+# October 2, 2024
+
+# October 1, 2024
+I use computer science day to day by using websites like canvas,judson portal,edpuzzles and ect. My life would be differnt if i couldnt use these websites by having to do all work on paper
 # September 30, 2024
 Internet Out
 # September 17, 2024
