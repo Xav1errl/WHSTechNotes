@@ -1,3 +1,13 @@
+# October 25, 2024
+ZUMI LESSONS 1.4
+# October 24, 2024
+ZUMI LESSONS 1.3
+# October 23, 2024
+ZUMI LESSONS 1.2
+# October 22, 2024
+ZUMI LESSONS 1.1
+# October 21, 2024
+Ai can benefit us in many ways like replacing jobs with robots, Helping with technian problems, factory jobs. But there are risks like Ai taking over the world and dominating the human race and taking us for advantage.
 # October 7, 2024
 Title:computer technician Description: Updating Software,TroubleShooting,Providing general support and installing new equipment for the computer Skills Needed: Communication skills, Customer Service, Problem Solving and trouble shooting Education: High school diploma or equivalent Carrer Growth: Management Skills, Problem solving, Cybersecurity and Programming and software development skills.
 # October 3, 2024
