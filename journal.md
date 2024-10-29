@@ -1,3 +1,7 @@
+# October 29, 2024
+ZUMI LESSONS 1.5
+# October 28, 2024
+I think technolgy and computer science affects the election by giving more options on how to vote but a negative to that would be a lack of computers to vote
 # October 25, 2024
 ZUMI LESSONS 1.4
 # October 24, 2024
