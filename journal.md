@@ -1,3 +1,9 @@
+# November 1, 2024
+Finish missing work
+# October 31, 2024
+Test
+# October 30, 2024
+ZUMI LESSONS 2.2
 # October 29, 2024
 ZUMI LESSONS 1.5
 # October 28, 2024
