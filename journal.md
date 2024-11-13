@@ -1,3 +1,15 @@
+# November 13, 2024
+
+# November 12, 2024
+
+# November 8, 2024
+
+# November 7, 2024
+
+# November 6, 2024
+
+# November 4, 2024
+
 # November 1, 2024
 Finish missing work
 # October 31, 2024
