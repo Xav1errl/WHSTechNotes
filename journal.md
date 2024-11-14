@@ -1,11 +1,11 @@
 # November 13, 2024
-
+ZUMI LESSONS 2.4
 # November 12, 2024
 
 # November 8, 2024
 
 # November 7, 2024
-
+ZUMI LESSONS 2.3
 # November 6, 2024
 
 # November 4, 2024
