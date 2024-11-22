@@ -1,15 +1,25 @@
+# November 21, 2024
+TEST
+# November 20, 2024
+Robot island levels
+# November 19, 2024
+Robot Island (completed)
+# November 18, 2024
+Technology has provided ways to farm food and get food by making machines that do it automatically for us. Also technology helps us purchase food by apps and delivery. Negatives are gas and radiation
+# November 14, 2024
+ZUMI LESSONS 3.1
 # November 13, 2024
 ZUMI LESSONS 2.4
 # November 12, 2024
 
 # November 8, 2024
-
+Inputs & Variables
 # November 7, 2024
 ZUMI LESSONS 2.3
 # November 6, 2024
-
+Teacher Not Here
 # November 4, 2024
-
+Its important to keep your personal and sensitive info when publishing online so people can't hack or steal your identity. You can enable 2fa. No. by selecting on what you want to put out.
 # November 1, 2024
 Finish missing work
 # October 31, 2024
