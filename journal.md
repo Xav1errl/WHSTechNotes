@@ -1,3 +1,11 @@
+# December 9, 2024
+The term brainrot means to me is you are annoying by saying it. Digital media has a neutral effect on me
+# December 6, 2024
+Minecraft Adventurer
+# December 5, 2024
+Minecraft: Hero's Journey
+# December 4, 2024
+ Minecraft Designer
 # December 3, 2024
 Phython Printing
 # December 2, 2024
