@@ -1,3 +1,13 @@
+# December 16, 2024
+Yes im looking foward towards winter break 
+# December 13, 2024
+Dance Party
+# December 12, 2024
+Missing Assignments
+# December 11, 2024
+Hello World : Retro
+# December 10, 2024
+Classic Maze
 # December 9, 2024
 The term brainrot means to me is you are annoying by saying it. Digital media has a neutral effect on me
 # December 6, 2024
