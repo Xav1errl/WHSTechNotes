@@ -1,3 +1,28 @@
+# January 23, 2025
+Disney Infinity Play Lab
+# January 22, 2025
+I dont like tiktok ban and also the govt is horrible they are ruining the US. its turning into a oligarchy.
+# January 16, 2025
+Moneyball Movie
+# January 15, 2025
+ Code your own sports game
+# January 14, 2025
+Desert Drones TSTEM Presentation
+# January 13, 2025
+I don't like the shift into AI. It would take peoples jobs. i have no idea
+# January 10, 2025
+Minecraft: Voyage Aquatic
+# January 9, 2025
+Minecraft: Voyage Aquatic
+# January 8, 2025
+I enjoyed being on my phone. what could be improved is nothing.
+ there is nothing i would like to explore.
+# December 19, 2024
+End
+# December 18, 2024
+End
+# December 17, 2024
+Semester Exam
 # December 16, 2024
 Yes im looking foward towards winter break 
 # December 13, 2024
