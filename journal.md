@@ -1,3 +1,75 @@
+# April 4, 2025
+Spelling With Bee
+# April 3, 2025
+Spelling With Bee
+# April 2, 2025
+Hour of Code
+# April 1, 2025
+Outbreak Simulator
+# March 31, 2025
+Objective
+# March 28, 2025
+Simulating a Marine Ecosystem - Lesson 3: Coding My Ecosystem
+# March 27, 2025
+Simulating a Marine Ecosystem - Lesson 2: Balancing the Ecosystem
+# March 26, 2025
+Objective
+# March 25, 2025
+Generative AI for Humanities - Lesson 1 & 2
+# March 24, 2025
+Objective
+# March 21, 2025
+Objective
+# March 20, 2025
+ Coding a Time Capsule - Lesson 3: Coding My Time Capsule
+# March 19, 2025
+Coding a Time Capsule - Lesson 1: Time Capsule Introduction
+# March 18, 2025
+Block Coding Test - Handout
+# March 17, 2025
+Hour of Code
+# March 6, 2025
+Coding Interactive Maps - Lesson 4: Mapmaking Introduction
+# March 5, 2025
+Coding Interactive Maps - Lesson 2 & 3: Mapmaking Introduction
+# March 4, 2025
+Coding Interactive Maps - Lesson 1: Mapmaking Introduction
+# March 3, 2025
+Heroes Underground Logic Puzzle
+# February 26, 2025
+Simple Encryption
+# February 24, 2025
+
+# February 18, 2025
+
+# February 14, 2025
+Gumball Play Lab
+# February 13, 2025
+Code.org: Artist
+# February 12, 2025
+Hello World: Food
+# February 11, 2025
+Journal - Student's Choice
+# February 7, 2025
+Keep On Dancing
+# February 6, 2025
+Hello World: Soccer
+# February 5, 2025
+Late Work Policy
+# February 4, 2025
+Code with Anna and Elsa
+# February 3, 2025
+
+# January 30, 2025
+Star Wars: Building a Galaxy With Code
+# January 29, 2025
+Flappy Code
+# January 28, 2025
+Hello World: Transformers One
+# January 27, 2025
+ Journal: Apprentice Mechanic Mishaps Logic Puzzle
+# January 24, 2025
+Coding Pathway Form
 # January 23, 2025
 Disney Infinity Play Lab
 # January 22, 2025
