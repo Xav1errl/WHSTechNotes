@@ -1,3 +1,5 @@
+# April 7, 2025
+AI can help us study by giving us information on the subject were studying on. Most useful feature would be it explaining things very througho, I would use it to help me study in lots of different ways
 # April 4, 2025
 Spelling With Bee
 # April 3, 2025
@@ -7,27 +9,27 @@ Hour of Code
 # April 1, 2025
 Outbreak Simulator
 # March 31, 2025
-Objective
+Im feeling stressed out. My grades are stressing me out. I really don't know. A's N B's my mom bothering me. no one.
 # March 28, 2025
 Simulating a Marine Ecosystem - Lesson 3: Coding My Ecosystem
 # March 27, 2025
 Simulating a Marine Ecosystem - Lesson 2: Balancing the Ecosystem
 # March 26, 2025
-Objective
+Simulating a Marine Ecosystem - Lesson 1: Overfishing Simulation
 # March 25, 2025
 Generative AI for Humanities - Lesson 1 & 2
 # March 24, 2025
-Objective
+itll make it more cooler to realize what weve done but i wouldnt like it.
 # March 21, 2025
-Objective
+Coding a Time Capsule - Lesson 3: Coding My Time Capsule
 # March 20, 2025
- Coding a Time Capsule - Lesson 3: Coding My Time Capsule
+ Coding a Time Capsule - Lesson 1: Time Capsule Introduction
 # March 19, 2025
-Coding a Time Capsule - Lesson 1: Time Capsule Introduction
+ Block Coding Test - Handout
 # March 18, 2025
-Block Coding Test - Handout
+Hour of code
 # March 17, 2025
-Hour of Code
+Ive used techonolgy over spring breakn  by playing lots of games
 # March 6, 2025
 Coding Interactive Maps - Lesson 4: Mapmaking Introduction
 # March 5, 2025
@@ -39,9 +41,9 @@ Heroes Underground Logic Puzzle
 # February 26, 2025
 Simple Encryption
 # February 24, 2025
-
+It could help older people understand words
 # February 18, 2025
-
+nothing interesting
 # February 14, 2025
 Gumball Play Lab
 # February 13, 2025
@@ -59,7 +61,7 @@ Late Work Policy
 # February 4, 2025
 Code with Anna and Elsa
 # February 3, 2025
-
+Making sure planes dont interfere with others i feel like thats pretty easy to do
 # January 30, 2025
 Star Wars: Building a Galaxy With Code
 # January 29, 2025
