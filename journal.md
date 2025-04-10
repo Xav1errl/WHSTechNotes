@@ -1,3 +1,5 @@
+# April 10, 2025
+Self Paced Introduction to Turtle Programming In App Lab - Lessons 1 & 2
 # April 7, 2025
 AI can help us study by giving us information on the subject were studying on. Most useful feature would be it explaining things very througho, I would use it to help me study in lots of different ways
 # April 4, 2025
